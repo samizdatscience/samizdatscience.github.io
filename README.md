@@ -1,1 +1,1 @@
-# sciencesamizdat.github.io
+# Science Samizdat
